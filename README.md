@@ -46,3 +46,7 @@
 ## 技能
 
 ### 英语
+
+#### 口语
+
+- [文章锻炼口语](https://www.zhihu.com/question/20097263/answer/2346426894?utm_source=wechat_session&utm_medium=social&utm_oi=664227312548188160&utm_content=group3_Answer&utm_campaign=shareopn)
